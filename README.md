@@ -1,7 +1,7 @@
 Christmas-inspiration-and-stocking-fillers
 ==========================================
 
-Some browsing and some lusting has led to the following. Santa, do you have an account??
+Some browsing - and some lusting - has led to the following. Santa, do you have an account??
 
   - [Birdy plates](http://www.magpieline.com/product/87/birdy-plates.html)  
     Love these. So simple and fun
