@@ -26,7 +26,7 @@ Some browsing - and some lusting - has led to the following. Santa, do you have 
   - [PRETTY tea caddy](http://www.alisonappleton.com/#!store/vstc4=darcy)  
     Not sure it would be big enough for the amount of tea we get through, but how very very pretty
   - [Pestle and mortar](http://www.amazon.co.uk/Blacksmith-Forged-Rustic-Pestle-Mortar/dp/B007Z0CBZ0)  
-    I happen to have the world's best pestle and mortar. But this is surely the second best
+    I happen to already have the world's best pestle and mortar. But this is surely the second best
   - [Utensils jar](http://www.notonthehighstreet.com/graciecollins/product/sticks-storage-jar)  
     For bits and bobs and sticks
 
